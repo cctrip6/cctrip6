@@ -3,7 +3,7 @@
 
 
 L- 👋 Hi, I’m @cctrip6
-- 👀 I’m interested in bitcoin
+- 👀 I’m interested in shib coin
 - 🌱 I’m currently learning Blockchain
 - 💞️ I’m looking to collaborate on life
 - 📫 How to reach me cctrip6@gmail.com
